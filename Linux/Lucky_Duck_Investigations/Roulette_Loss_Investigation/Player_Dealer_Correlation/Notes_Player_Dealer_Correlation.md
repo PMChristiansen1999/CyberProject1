@@ -1,0 +1,1 @@
+Based on the evidence, I believe Mylie Schmidt and Billy Jones are colluding. Billy Jones was the dealer each time a loss occured and Mylie Schmidt was one of the players present at each loss.
